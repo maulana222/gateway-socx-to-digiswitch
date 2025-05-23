@@ -1,2 +1,2 @@
-DigiSwicth sebagai supplier
+DigiSwicth sebagai supplier,
 SOCX Sebagai Member
